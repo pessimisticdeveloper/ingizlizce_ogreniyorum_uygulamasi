@@ -1,0 +1,1 @@
+# ingizlizce_ogreniyorum_uygulamasi
